@@ -12,7 +12,7 @@
 Mexican journalist experienced in technology, automobiles, politics, energy, and Hispanic communities in the U.S.  
 I’ve reported from *Mexico, the U.S., South Korea, Germany, Spain, Canada, and France*, blending data with compelling narratives.
 
-Currently a *bilingual data journalist at The Dallas Morning News, and a **Fulbright Scholar* with a Master’s in Journalism (specializing in Data Journalism) from the University of Missouri.
+Currently a *bilingual freelance data journalist at The Dallas Morning News, and a **Fulbright Scholar* with a Master’s in Journalism (specializing in Data Journalism) from the University of Missouri.
 
 ---
 
