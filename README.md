@@ -3,7 +3,6 @@
 
 📍 Jalisco, Mexico  
 📧 joseluis@adriano.media  
-📱 +52 341 129 5159  
 🔗 <a href="https://www.linkedin.com/in/joseluisadriano/" target="_blank">LinkedIn</a> | <a href="https://twitter.com/adriano_dreamer" target="_blank">@adriano_dreamer</a>  
 
 ---
